@@ -1,4 +1,4 @@
-# 
+# rare NFT Sniper for nft sniper bot | royalty-calculator & flip-strategies offers the most advanced nft sniper bot, with royalty-calculator and flip-strategies. Ideal for
 
 
 
